@@ -14,3 +14,5 @@ setd
 gsdretfgsdf
 
 polaczone pliki
+
+drugie zmiany 10:57
