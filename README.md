@@ -15,8 +15,9 @@ gsdretfgsdf
 
 polaczone pliki
 
-nowe zmiany
+drugie zmiany 10:57
 sdfgg
 dsf
 gsdf
 sdfg
+
